@@ -1,1 +1,1 @@
-# Auto-kola---Terms-Conditions
+# AutoSkola---Terms-Conditions
